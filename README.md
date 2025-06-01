@@ -40,8 +40,8 @@ You're welcome to explore, reuse, or contribute.
 
 Feel free to connect with me on:
 
-- 📧 Email: your@email.com  
-- 📱 WhatsApp: +20xxxxxxxxxx  
+- 📧 Email: technewseg@gmail.com  
+- 📱 WhatsApp: +201095220229  
 - 🌐 LinkedIn: [linkedin.com/in/mohamedrizk](https://linkedin.com/in/mohamedrizk)
 
 ---
